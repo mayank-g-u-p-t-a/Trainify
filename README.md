@@ -9,3 +9,6 @@ https://drive.google.com/drive/folders/1lkGwezh6fcVMc9pC2AKfU417QRxIgdiO?usp=dri
 
 ## Student AR Activity
 https://drive.google.com/drive/folders/1jGOO1za6h8lOyK9kLAsgIH6rGKWqmcq2?usp=drive_link 
+
+## Video
+https://youtu.be/bap_rDaooS0
